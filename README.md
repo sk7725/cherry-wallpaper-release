@@ -5,11 +5,11 @@
 
 -------------------
 
-그림: SIA (트위터 @Sia0555)
+그림: SIA [@Sia0555](https://x.com/Sia0555)
 
-리깅: NE0N (트위터 @NE0N1354)
+리깅: NE0N [@NE0N1354](https://x.com/NE0N1354)
 
-코드: 선희 (트위터 @SunnieCloudi)
+코드: 선희 [@SunnieCloudi](https://x.com/SunnieCloudi)
 
 -----------------------
 모든 저작권은 각 저작권자에 귀속됩니다.
